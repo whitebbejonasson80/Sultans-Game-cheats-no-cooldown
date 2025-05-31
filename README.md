@@ -1,0 +1,1 @@
+# Sultans-Game-cheats-no-cooldown
